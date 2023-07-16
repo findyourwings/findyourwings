@@ -1,1 +1,1 @@
-<p align="center"><img src="https://scontent-hou1-1.cdninstagram.com/v/t51.2885-15/355243347_1015539269441203_4021353216015032903_n.jpg?stp=dst-jpg_e35&_nc_ht=scontent-hou1-1.cdninstagram.com&_nc_cat=107&_nc_ohc=Nuu-UTI58O0AX9jcIh0&edm=ABmJApABAAAA&ccb=7-5&ig_cache_key=MzEyODk3OTIyMDcwNDE1Mzk0MQ%3D%3D.2-ccb7-5&oh=00_AfBmVBc7co9cZwXdZBs97O2gFLGY95LW2Uad8CxT6B1Fig&oe=64B8E71B&_nc_sid=b41fef" /></p>
+<p align="center"><img src="https://i.vgy.me/OcNQLe.jpg" /></p>
